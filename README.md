@@ -1,2 +1,2 @@
 # author_ber12
-S D sponsor
+D R sponsor
