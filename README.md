@@ -1,2 +1,2 @@
 # author_ber12
-D R sponsor
+Undecided B-2 or J-1
