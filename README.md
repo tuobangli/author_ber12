@@ -1,2 +1,3 @@
 # author_ber12
-Undecided B-2 or J-1
+both J-1 and B-2
+
