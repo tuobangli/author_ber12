@@ -1,2 +1,2 @@
 # author_ber12
-must J-1
+J-1 or F-1
