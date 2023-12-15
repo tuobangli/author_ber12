@@ -1,2 +1,2 @@
 # author_ber12
-visiting student researcher J-1
+Berkeley Global Professional Internship Program	
