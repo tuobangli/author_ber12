@@ -1,3 +1,5 @@
 # author_ber12
 
-Berkeley extension, I already sent emails to Berkeley extension, waiting for reply.
+go to Kuala Lumpur tomorrow.
+
+and then back to my home on Monday.
