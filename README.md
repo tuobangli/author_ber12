@@ -1,1 +1,1 @@
-not talk with Dr. Iqbal 
+to Saipan
