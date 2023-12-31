@@ -1,1 +1,1 @@
-to Saipan
+Saipan Vegas Resort 
