@@ -1,1 +1,1 @@
-20-25
+Holiday Saipan Hotel
