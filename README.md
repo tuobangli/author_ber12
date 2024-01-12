@@ -1,2 +1,1 @@
-Holiday Saipan Hotel
-10
+6
