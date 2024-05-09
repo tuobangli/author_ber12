@@ -1,3 +1,3 @@
-using matrix dissimilarity and generating more derivatives (visulazation) and application in medicines and agriculture.
+using matrix dissimilarity and derivatives (visulazation) and application in medicines .
 
 pnas nexus
